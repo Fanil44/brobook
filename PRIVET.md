@@ -1,2 +1,3 @@
 Privet. kak dela bro?
-novyj izmenenija
+novyj izmenenij
+kotorye proshli ne na pol'zu
