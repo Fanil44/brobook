@@ -1,1 +1,1 @@
-Privet
+Privet. kak dela bro?
